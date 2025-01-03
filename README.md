@@ -1,4 +1,5 @@
-## Hi there 👋
+# Silly little guy !!!!!!
+**`Medkit/Subspace/Rocket kinnie !! Minor - Call me Forrest, Fizz, Pebbles, Medoc/Meddoc, or whatever charcter I am or is my pfp!!`**
 
 <!--
 **pxstarrunt/pxstarrunt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
