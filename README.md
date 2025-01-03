@@ -1,5 +1,5 @@
 # Meet the silly little guy !!!!!!
-![Uploading image.png…]()
+![image](https://github.com/user-attachments/assets/ac79dc0a-a6a9-466b-8399-12bae3a225a1)
 
 **`ᴹᵉᵈᵏⁱᵗ/ˢᵘᵇˢᵖᵃᶜᵉ/ᴿᵒᶜᵏᵉᵗ ᵏⁱⁿⁿⁱᵉ !! ᴹⁱⁿᵒʳ`**
 
