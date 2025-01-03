@@ -1,5 +1,5 @@
 # Meet the silly little guy !!!!!!
-[![image](https://github.com/user-attachments/assets/ac79dc0a-a6a9-466b-8399-12bae3a225a1)](https://media.discordapp.net/attachments/697910542660010086/1017799719247945758/8895C8C3-45A5-4EDC-A93F-2F1E3E5DC517.gif?ex=6778991a&is=6777479a&hm=a073af6267b2bcbfaf455c3eb27a727bc188922e4284f7c4c0fd0f804e2aeed7&)
+![image] (https://media.discordapp.net/attachments/697910542660010086/1017799719247945758/8895C8C3-45A5-4EDC-A93F-2F1E3E5DC517.gif?ex=6778991a&is=6777479a&hm=a073af6267b2bcbfaf455c3eb27a727bc188922e4284f7c4c0fd0f804e2aeed7&)
 
 **`ᴹᵉᵈᵏⁱᵗ/ˢᵘᵇˢᵖᵃᶜᵉ/ᴿᵒᶜᵏᵉᵗ ᵏⁱⁿⁿⁱᵉ !! ᴹⁱⁿᵒʳ`**
 
