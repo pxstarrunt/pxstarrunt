@@ -2,6 +2,7 @@
 ![image](https://media.discordapp.net/attachments/697910542660010086/1017799719247945758/8895C8C3-45A5-4EDC-A93F-2F1E3E5DC517.gif?ex=6778991a&is=6777479a&hm=a073af6267b2bcbfaf455c3eb27a727bc188922e4284f7c4c0fd0f804e2aeed7&)
 ![image](https://media1.tenor.com/m/V7NINz2cDSsAAAAd/shuriken-shuriken-phighting.gif)
 
+![image](https://media1.tenor.com/m/y68ezLrq4qcAAAAd/phighting-shuriken.gif)
 **`ᴹᵉᵈᵏⁱᵗ/ˢᵘᵇˢᵖᵃᶜᵉ/ᴿᵒᶜᵏᵉᵗ ᵏⁱⁿⁿⁱᵉ !! ᴹⁱⁿᵒʳ`**
 
 **`ᶜᵃˡˡ ᵐᵉ ᶠᵒʳʳᵉˢᵗ, ᶠⁱᶻᶻ, ᴾᵉᵇᵇˡᵉˢ, ᴹᵉᵈᵒᶜ/ᴹᵉᵈᵈᵒᶜ, ᵒʳ ʷʰᵃᵗᵉᵛᵉʳ ᶜʰᵃʳᶜᵗᵉʳ ᴵ ᵃᵐ ᵒʳ ⁱˢ ᵐʸ ᵖᶠᵖ!!`**
