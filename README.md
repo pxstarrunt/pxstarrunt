@@ -22,6 +22,9 @@
 ✧ *ᴵⁿˢᵉʳᵗ ᵇᵃˢⁱᶜ ᵈⁿⁱ ʰᵉʳᵉ ⁽ᵗᵒᵒ ˡᵃᶻʸ⁾*
 
 ✦ ᵒⁿˡⁱⁿᵉ ᶠʳᵒᵐ ᵃʳᵒᵘⁿᵈ ³ ᵖᵐ ⁻ ⁹ ᵖᵐ ᴱˢᵀ ᵘⁿˡᵉˢˢ ᵒⁿ ᵃ ʷᵉᵉᵏᵉⁿᵈ. ᶠᵉᵉˡ ᶠʳᵉᵉ ᵗᵒ ᵃˢᵏ ᵗᵒ ᵇᵉ ᵐᵒᵒᵗˢ ⁱᶠ ʸᵒᵘ ᶠᵉᵉˡ ˡⁱᵏᵉ ⁱᵗ.
+
+![image](https://github.com/user-attachments/assets/3a203f25-35fb-4299-b5d1-f41b82317437)
+
 <!--
 **pxstarrunt/pxstarrunt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
