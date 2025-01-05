@@ -3,6 +3,8 @@
 ![image](https://media1.tenor.com/m/V7NINz2cDSsAAAAd/shuriken-shuriken-phighting.gif)
 
 ![image](https://media1.tenor.com/m/y68ezLrq4qcAAAAd/phighting-shuriken.gif)
+
+![image](https://i.pinimg.com/originals/70/55/c9/7055c99bad359a99e95a9a0bf4849a77.gif)
 **`ᴹᵉᵈᵏⁱᵗ/ˢᵘᵇˢᵖᵃᶜᵉ/ᴿᵒᶜᵏᵉᵗ ᵏⁱⁿⁿⁱᵉ !! ᴹⁱⁿᵒʳ`**
 
 **`ᶜᵃˡˡ ᵐᵉ ᶠᵒʳʳᵉˢᵗ, ᶠⁱᶻᶻ, ᴾᵉᵇᵇˡᵉˢ, ᴹᵉᵈᵒᶜ/ᴹᵉᵈᵈᵒᶜ, ᵒʳ ʷʰᵃᵗᵉᵛᵉʳ ᶜʰᵃʳᶜᵗᵉʳ ᴵ ᵃᵐ ᵒʳ ⁱˢ ᵐʸ ᵖᶠᵖ!!`**
