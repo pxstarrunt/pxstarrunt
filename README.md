@@ -1,4 +1,4 @@
-[![image](https://github.com/user-attachments/assets/9ec9af07-bb36-40bb-9662-ff27bc0c66cf)](https://64.media.tumblr.com/56ca29f32d66309376c8929f5951ddc7/0d56bb1e3f8344c9-17/s500x750/57e9426206bb87b6ec810e0346b179ea71544671.jpg)
+[![image](https://i.pinimg.com/736x/82/2f/3d/822f3d1bcd6d7bb5b9f1b431660dd18a.jpg)
 
 # 𝓜𝓮𝓮𝓽 𝓽𝓱𝓮 𝓼𝓲𝓵𝓵𝔂 𝓵𝓲𝓽𝓽𝓵𝓮 𝓰𝓸𝓸𝓫𝓮𝓻!!!!!!
 ![image](https://media.discordapp.net/attachments/697910542660010086/1017799719247945758/8895C8C3-45A5-4EDC-A93F-2F1E3E5DC517.gif?ex=6778991a&is=6777479a&hm=a073af6267b2bcbfaf455c3eb27a727bc188922e4284f7c4c0fd0f804e2aeed7&)
