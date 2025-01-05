@@ -1,4 +1,4 @@
-[![image](https://i.pinimg.com/736x/82/2f/3d/822f3d1bcd6d7bb5b9f1b431660dd18a.jpg)
+![image](https://i.pinimg.com/736x/82/2f/3d/822f3d1bcd6d7bb5b9f1b431660dd18a.jpg)
 
 # 𝓜𝓮𝓮𝓽 𝓽𝓱𝓮 𝓼𝓲𝓵𝓵𝔂 𝓵𝓲𝓽𝓽𝓵𝓮 𝓰𝓸𝓸𝓫𝓮𝓻!!!!!! ![image](https://i.pinimg.com/originals/c7/84/48/c78448958c552252aa6d69a7810cf706.jpg)
 
