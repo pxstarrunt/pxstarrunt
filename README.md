@@ -5,6 +5,7 @@
 ![image](https://media1.tenor.com/m/y68ezLrq4qcAAAAd/phighting-shuriken.gif)
 
 ![image](https://i.pinimg.com/originals/70/55/c9/7055c99bad359a99e95a9a0bf4849a77.gif)
+![image](https://raw.githubusercontent.com/D3Ext/aesthetic-wallpapers/main/images/waterfall.gif)
 **`ᴹᵉᵈᵏⁱᵗ/ˢᵘᵇˢᵖᵃᶜᵉ/ᴿᵒᶜᵏᵉᵗ ᵏⁱⁿⁿⁱᵉ !! ᴹⁱⁿᵒʳ`**
 
 **`ᶜᵃˡˡ ᵐᵉ ᶠᵒʳʳᵉˢᵗ, ᶠⁱᶻᶻ, ᴾᵉᵇᵇˡᵉˢ, ᴹᵉᵈᵒᶜ/ᴹᵉᵈᵈᵒᶜ, ᵒʳ ʷʰᵃᵗᵉᵛᵉʳ ᶜʰᵃʳᶜᵗᵉʳ ᴵ ᵃᵐ ᵒʳ ⁱˢ ᵐʸ ᵖᶠᵖ!!`**
@@ -48,6 +49,8 @@
 
 ✧ ᵒⁿˡⁱⁿᵉ ᶠʳᵒᵐ ᵃʳᵒᵘⁿᵈ ³ ᵖᵐ ⁻ ⁹ ᵖᵐ ᴱˢᵀ ᵘⁿˡᵉˢˢ ᵒⁿ ᵃ ʷᵉᵉᵏᵉⁿᵈ. ᶠᵉᵉˡ ᶠʳᵉᵉ ᵗᵒ ᵃˢᵏ ᵗᵒ ᵇᵉ ᵐᵒᵒᵗˢ ⁱᶠ ʸᵒᵘ ᶠᵉᵉˡ ˡⁱᵏᵉ ⁱᵗ.
 
+![image](https://rare-gallery.com/uploads/posts/547224-landscape-wallpaper.gif)
+![image](https://gifdb.com/images/high/green-aesthetic-anime-rain-puddle-exaa3sm9fldhstnf.gif)
 ![image](https://cdn.discordapp.com/attachments/1016884592344567872/1323010988097802331/medkit-phighting.gif?ex=67783b7f&is=6776e9ff&hm=42bfb9f8aaeb392dae4ed575ce6bc09e09d516de003af48af95ec9c47b391ea5&)
 <!--
 **pxstarrunt/pxstarrunt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
