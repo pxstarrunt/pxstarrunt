@@ -82,8 +82,6 @@
   ![image](https://github.com/user-attachments/assets/5bba1e89-2a6a-4676-bddc-67f163707491)
 
 
-![image](https://github.com/user-attachments/assets/1e897253-5d86-460d-ac23-d4252c0b332a)
-
 ![image](https://cdn.discordapp.com/attachments/1016884592344567872/1323010988097802331/medkit-phighting.gif?ex=67783b7f&is=6776e9ff&hm=42bfb9f8aaeb392dae4ed575ce6bc09e09d516de003af48af95ec9c47b391ea5&)
 <!--
 **pxstarrunt/pxstarrunt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
