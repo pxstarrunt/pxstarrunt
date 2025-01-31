@@ -60,7 +60,9 @@
 
 ✧ ᵒⁿˡⁱⁿᵉ ᶠʳᵒᵐ ᵃʳᵒᵘⁿᵈ ³ ᵖᵐ ⁻ ⁹ ᵖᵐ ᴱˢᵀ ᵘⁿˡᵉˢˢ ᵒⁿ ᵃ ʷᵉᵉᵏᵉⁿᵈ. ᶠᵉᵉˡ ᶠʳᵉᵉ ᵗᵒ ᵃˢᵏ ᵗᵒ ᵇᵉ ᵐᵒᵒᵗˢ ⁱᶠ ʸᵒᵘ ᶠᵉᵉˡ ˡⁱᵏᵉ ⁱᵗ.
 
-⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
+                                                                         ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
+  
+  ![image](https://github.com/user-attachments/assets/5bba1e89-2a6a-4676-bddc-67f163707491)
 
 ![image](https://i.pinimg.com/originals/f4/bb/29/f4bb29c7b8f17aeb3956134b172ab8ef.gif)
 
