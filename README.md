@@ -1,3 +1,4 @@
+![image](https://github.com/user-attachments/assets/7e58f528-1b26-49f0-a5d1-729b2f497618)
 
 # 𝓜𝓮𝓮𝓽 𝓽𝓱𝓮 𝓼𝓲𝓵𝓵𝔂 𝓵𝓲𝓽𝓽𝓵𝓮 𝓰𝓸𝓸𝓫𝓮𝓻!!!!!! ![image](https://github.com/user-attachments/assets/c65acfbf-cd9a-49cb-aa76-a07fb14a5ead)
 
@@ -64,7 +65,7 @@
   
   ![image](https://github.com/user-attachments/assets/5bba1e89-2a6a-4676-bddc-67f163707491)
 
-![image](https://i.pinimg.com/originals/f4/bb/29/f4bb29c7b8f17aeb3956134b172ab8ef.gif)
+![image](https://github.com/user-attachments/assets/c1ae0c74-7775-4c07-a7de-cf8baad53831)
 
 ![image](https://cdn.discordapp.com/attachments/1016884592344567872/1323010988097802331/medkit-phighting.gif?ex=67783b7f&is=6776e9ff&hm=42bfb9f8aaeb392dae4ed575ce6bc09e09d516de003af48af95ec9c47b391ea5&)
 <!--
