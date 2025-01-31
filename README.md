@@ -11,9 +11,9 @@
 ![image](https://raw.githubusercontent.com/D3Ext/aesthetic-wallpapers/main/images/waterfall.gif)
 ![image](https://64.media.tumblr.com/226223317f3378b35a81daf56de929fa/cf2be94e8018e3b3-d5/s640x960/6f7739d7228a55508de154ecd336dc580f8656b1.gifv)
 
-<p align=center> **`ᴹᵉᵈᵏⁱᵗ/ˢᵘᵇˢᵖᵃᶜᵉ/ᴿᵒᶜᵏᵉᵗ ᵏⁱⁿⁿⁱᵉ !! ᴹⁱⁿᵒʳ`**
+**`ᴹᵉᵈᵏⁱᵗ/ˢᵘᵇˢᵖᵃᶜᵉ/ᴿᵒᶜᵏᵉᵗ ᵏⁱⁿⁿⁱᵉ !! ᴹⁱⁿᵒʳ`**
 
-<p align=center> **`ᶜᵃˡˡ ᵐᵉ ᶠᵒʳʳᵉˢᵗ, ᶠⁱᶻᶻ, ᴾᵉᵇᵇˡᵉˢ, ᴹᵉᵈᵒᶜ/ᴹᵉᵈᵈᵒᶜ, ᵒʳ ʷʰᵃᵗᵉᵛᵉʳ ᶜʰᵃʳᶜᵗᵉʳ ᴵ ᵃᵐ ᵒʳ ⁱˢ ᵐʸ ᵖᶠᵖ!!`**
+ **`ᶜᵃˡˡ ᵐᵉ ᶠᵒʳʳᵉˢᵗ, ᶠⁱᶻᶻ, ᴾᵉᵇᵇˡᵉˢ, ᴹᵉᵈᵒᶜ/ᴹᵉᵈᵈᵒᶜ, ᵒʳ ʷʰᵃᵗᵉᵛᵉʳ ᶜʰᵃʳᶜᵗᵉʳ ᴵ ᵃᵐ ᵒʳ ⁱˢ ᵐʸ ᵖᶠᵖ!!`**
   
 ![image](https://github.com/user-attachments/assets/a48b993f-2cf3-4dff-b398-9d549f0d300d)
 
