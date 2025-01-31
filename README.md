@@ -1,7 +1,7 @@
 
 # 𝓜𝓮𝓮𝓽 𝓽𝓱𝓮 𝓼𝓲𝓵𝓵𝔂 𝓵𝓲𝓽𝓽𝓵𝓮 𝓰𝓸𝓸𝓫𝓮𝓻!!!!!! ![image](https://github.com/user-attachments/assets/c65acfbf-cd9a-49cb-aa76-a07fb14a5ead)
 ![image](https://github.com/user-attachments/assets/e661eb98-0f26-4b15-97b5-27817e95a2ef)
-<p style="text-align:center"> RARWR ! !  <p>
+
 
 ![image](https://media.discordapp.net/attachments/697910542660010086/1017799719247945758/8895C8C3-45A5-4EDC-A93F-2F1E3E5DC517.gif?ex=6778991a&is=6777479a&hm=a073af6267b2bcbfaf455c3eb27a727bc188922e4284f7c4c0fd0f804e2aeed7&)
 ![image](https://media1.tenor.com/m/V7NINz2cDSsAAAAd/shuriken-shuriken-phighting.gif)
@@ -32,7 +32,7 @@
 
 ✧ ᴹᵉᵈᵏⁱᵗ ⁱˢ ᵐʸ ᶠᵃᵛᵒʳⁱᵗᵉ ᵖʰⁱᵍʰᵗᵉʳ ! // ˢᵘᵇˢᵖᵃᶜᵉ ⁱˢ ᵐʸ ˡᵉᵃˢᵗ ᶠᵃᵛᵒʳⁱᵗᵉ ᵖʰⁱᵍʰᵗᵉʳ !
 
-✦ ᵏⁿᵒʷⁿ ᵇʸ ᵐᵃⁿʸ ⁿᵃᵐᵉˢ ᵒⁿ ᵐᵃⁿʸ ᵈⁱᶠᶠᵉʳᵉⁿᵗ ˢᵒᶜⁱᵃˡˢ..
+<p align=center> ✦ ᵏⁿᵒʷⁿ ᵇʸ ᵐᵃⁿʸ ⁿᵃᵐᵉˢ ᵒⁿ ᵐᵃⁿʸ ᵈⁱᶠᶠᵉʳᵉⁿᵗ ˢᵒᶜⁱᵃˡˢ..
 
 ![image](https://64.media.tumblr.com/1e0157c01fed92a34467a6afc89974ea/53333f61af485e11-d7/s500x750/9799fd7bb8f838926b84e6919d8b26e437e24b80.gifv)
 ![image](https://64.media.tumblr.com/1e0157c01fed92a34467a6afc89974ea/53333f61af485e11-d7/s500x750/9799fd7bb8f838926b84e6919d8b26e437e24b80.gifv)
