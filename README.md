@@ -40,6 +40,8 @@
 ![image](https://64.media.tumblr.com/1e0157c01fed92a34467a6afc89974ea/53333f61af485e11-d7/s500x750/9799fd7bb8f838926b84e6919d8b26e437e24b80.gifv)
 ![image](https://64.media.tumblr.com/1e0157c01fed92a34467a6afc89974ea/53333f61af485e11-d7/s500x750/9799fd7bb8f838926b84e6919d8b26e437e24b80.gifv)
 
+![image](https://github.com/user-attachments/assets/a12d3e66-fa1d-4c35-9119-4edbc381e8ba)
+
 <p align=center> ✧ ***`𝐃𝐍𝐈 !!`***
 
 <p align=center> ⁻ ᴵᶠ ¹⁸⁺ ⁽ᴵ ᵈᵒⁿ'ᵗ ʷᵃⁿᵗ ᵗᵒ ʳᵉᵃˡˡʸ ⁱⁿᵗ ʷⁱᵗʰ ᵍʳᵒʷⁿ ᵃᵈᵘˡᵗˢ ᵘⁿˡᵉˢˢ ʷᵉ ʳ ᶜˡᵒˢᵉ !!⁾
