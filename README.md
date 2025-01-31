@@ -1,5 +1,4 @@
-![image](https://github.com/user-attachments/assets/0f8067c3-23d1-42c6-9c7d-05b6ef687b71)
-
+![image](https://github.com/user-attachments/assets/e4099358-cbfb-4796-8833-3600a72632fb)
 
 # **`𝓜𝓮𝓮𝓽 𝓽𝓱𝓮 𝓼𝓲𝓵𝓵𝔂 𝓵𝓲𝓽𝓽𝓵𝓮 𝓰𝓸𝓸𝓫𝓮𝓻!!!!!!`** ![image](https://github.com/user-attachments/assets/c65acfbf-cd9a-49cb-aa76-a07fb14a5ead)
 
