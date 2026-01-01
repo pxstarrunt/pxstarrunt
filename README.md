@@ -35,8 +35,6 @@
 
 
 
-![image](https://github.com/user-attachments/assets/cee5e7f0-0e4f-40ee-b1ea-b994c50681de)
-
 
 <p align=center> ✦ `𝘼𝙎𝙆 2 𝘽𝙀 𝙈𝙊𝙊𝙏𝙎 !!`
 
