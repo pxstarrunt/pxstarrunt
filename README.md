@@ -42,7 +42,7 @@
 
 <p align=center> I get very nervous around others and might be shy at first , but I don't bite !
 
-![image](https://github.com/user-attachments/assets/a8832736-afd8-4a9b-85fb-35c0132598e8)
+![image](https://64.media.tumblr.com/e0074ff4061856187905b82319fc9b26/32d91eb9f9453e40-2c/s1280x1920/03c738731f59d3e1614ab963edc8fb3eceb15991.pnj)
 
 
 <p align=center> ✦ ᵈⁱᵛ ᶜʳᵉᵈ ! !: @/ᵏᵒᵈᵃˢʷʳˡᵈ / / @/ᵃⁿⁱᵗᵃˡᵉⁿⁱᵃ / / @/ᵛʸˢˡᵉⁱˣ  ~ ⁽ ᵃˡˡ ᵒⁿ ᵗᵘᵐᵇˡʳ ! ! ⁾ ~
