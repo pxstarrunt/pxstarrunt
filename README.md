@@ -23,22 +23,20 @@
 
 <p align=center> ✧ `𝐃𝐍𝐈 !!`
 
-<p align=center> ⁻ dead dove, pedos, zoos, etc .
+<p align=center> ⁻ 𝑑𝑒𝑎𝑑 𝑑𝑜𝑣𝑒, 𝑝𝑒𝑑𝑜𝑠, 𝑧𝑜𝑜𝑠, 𝑒𝑡𝑐 .
 
-<p align=center> ⁻ under 13, uncomfortable interacting with young kids .
+<p align=center> ⁻ 𝑢𝑛𝑑𝑒𝑟 13 , 𝑢𝑛𝑐𝑜𝑚𝑓𝑜𝑟𝑡𝑎𝑏𝑙𝑒 𝑖𝑛𝑡𝑒𝑟𝑎𝑐𝑡𝑖𝑛𝑔 𝑤𝑖𝑡ℎ 𝑦𝑜𝑢𝑛𝑔 𝑘𝑖𝑑𝑠 .
 
-<p align=center> ⁻ anti-recovery ( for comfortablity reasons ) 
-
-<p align=center> ⁻ purposfully make others uncomfortable
+<p align=center> ⁻ 𝑎𝑛𝑡𝑖-𝑟𝑒𝑐𝑜𝑣𝑒𝑟𝑦 ( 𝑓𝑜𝑟 𝑐𝑜𝑚𝑓𝑜𝑟𝑡𝑎𝑏𝑙𝑖𝑡𝑦 𝑟𝑒𝑎𝑠𝑜𝑛𝑠 ) 
 
 
 ![image](https://64.media.tumblr.com/5f6396a6286f777251d2975c3220f237/32d91eb9f9453e40-a6/s2048x3072/7a8c5457b5bbb11a31f6213e34550a581b4220bf.pnj)
 
 <p align=center> ✦ `𝘼𝙎𝙆 2 𝘽𝙀 𝙈𝙊𝙊𝙏𝙎 !!`
 
-<p align=center> I'm really interested in becoming friends with people , even though I'm terrible at making some .
+<p align=center> 𝐼'𝑚 𝑟𝑒𝑎𝑙𝑙𝑦 𝑖𝑛𝑡𝑒𝑟𝑒𝑠𝑡𝑒𝑑 𝑖𝑛 𝑏𝑒𝑐𝑜𝑚𝑖𝑛𝑔 𝑓𝑟𝑖𝑒𝑛𝑑𝑠 𝑤𝑖𝑡ℎ 𝑝𝑒𝑜𝑝𝑙𝑒 , 𝑒𝑣𝑒𝑛 𝑡ℎ𝑜𝑢𝑔ℎ 𝐼'𝑚 𝑡𝑒𝑟𝑟𝑖𝑏𝑙𝑒 𝑎𝑡 𝑚𝑎𝑘𝑖𝑛𝑔 𝑠𝑜𝑚𝑒 .
 
-<p align=center> I get very nervous around others and might be shy at first , but I don't bite !
+<p align=center> 𝐼 𝑔𝑒𝑡 𝑣𝑒𝑟𝑦 𝑛𝑒𝑟𝑣𝑜𝑢𝑠 𝑎𝑟𝑜𝑢𝑛𝑑 𝑜𝑡ℎ𝑒𝑟𝑠 𝑎𝑛𝑑 𝑚𝑖𝑔ℎ𝑡 𝑏𝑒 𝑠ℎ𝑦 𝑎𝑡 𝑓𝑖𝑟𝑠𝑡 , 𝑏𝑢𝑡 𝐼 𝑑𝑜𝑛'𝑡 𝑏𝑖𝑡𝑒 !
 
 ![image](https://64.media.tumblr.com/e0074ff4061856187905b82319fc9b26/32d91eb9f9453e40-2c/s1280x1920/03c738731f59d3e1614ab963edc8fb3eceb15991.pnj)
 
