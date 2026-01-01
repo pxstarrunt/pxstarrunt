@@ -4,7 +4,7 @@
 
  **`please call me Doma, Medkit, or Wren`**
   
-![image](https://tumblr_931ae319050d2c211490dfb854064413_65540982_500.webpex?](https://media.discordapp.net/attachments/1016884592344567872/1456134809008078848/tumblr_931ae319050d2c211490dfb854064413_65540982_500.webp?ex=695742b8&is=6955f138&hm=597d53697080a4ca8c4ef59e19d6e1b0f41dd847d2d190163622f48a001ae15c&=&animated=true&width=675&height=24))
+![image](https://[tumblr_931ae319050d2c211490dfb854064413_65540982_500.webpex?](https://media.discordapp.net/attachments/1016884592344567872/1456134809008078848/tumblr_931ae319050d2c211490dfb854064413_65540982_500.webp?ex=695742b8&is=6955f138&hm=597d53697080a4ca8c4ef59e19d6e1b0f41dd847d2d190163622f48a001ae15c&=&animated=true&width=675&height=24))
 
 <p align=center> 𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 
 <p align=center> ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖
