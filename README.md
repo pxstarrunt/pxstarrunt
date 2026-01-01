@@ -34,7 +34,7 @@
 <p align=center> ⁻ purposfully make others uncomfortable
 
 
-
+![image](https://64.media.tumblr.com/5f6396a6286f777251d2975c3220f237/32d91eb9f9453e40-a6/s2048x3072/7a8c5457b5bbb11a31f6213e34550a581b4220bf.pnj)
 
 <p align=center> ✦ `𝘼𝙎𝙆 2 𝘽𝙀 𝙈𝙊𝙊𝙏𝙎 !!`
 
