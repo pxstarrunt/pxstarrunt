@@ -49,10 +49,7 @@
 
 <p align=center> ✦ ᵈⁱᵛ ᶜʳᵉᵈ ! !: @/ᵏᵒᵈᵃˢʷʳˡᵈ / / @/ᵃⁿⁱᵗᵃˡᵉⁿⁱᵃ / / @/ᵛʸˢˡᵉⁱˣ  ~ ⁽ ᵃˡˡ ᵒⁿ ᵗᵘᵐᵇˡʳ ! ! ⁾ ~
 
-<p align=center>  ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
-  
- 
-![image](https://cdn.discordapp.com/attachments/1016884592344567872/1323010988097802331/medkit-phighting.gif?ex=67783b7f&is=6776e9ff&hm=42bfb9f8aaeb392dae4ed575ce6bc09e09d516de003af48af95ec9c47b391ea5&)
+![image](https://64.media.tumblr.com/931ae319050d2c211490dfb854064413/32d91eb9f9453e40-7d/s1280x1920/75d4b4bc75d9ed005be1a91614dfdd1f3dfd8d89.gifv)
 <!--
 **pxstarrunt/pxstarrunt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
