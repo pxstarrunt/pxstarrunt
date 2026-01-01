@@ -21,7 +21,7 @@
 ![image](https://64.media.tumblr.com/9d6b6cb355065dc9c6ad4c4c58cb6457/32d91eb9f9453e40-54/s1280x1920/b0e20f3a675e19c5d7eec9f7ab11a0dadd222f49.gifv)
 
 
-![image](https://github.com/user-attachments/assets/a12d3e66-fa1d-4c35-9119-4edbc381e8ba)
+![image](https://files.catbox.moe/7o9870.png)
 
 <p align=center> ✧ `𝐃𝐍𝐈 !!`
 
