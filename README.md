@@ -45,7 +45,7 @@
 ![image](https://64.media.tumblr.com/e0074ff4061856187905b82319fc9b26/32d91eb9f9453e40-2c/s1280x1920/03c738731f59d3e1614ab963edc8fb3eceb15991.pnj)
 
 
-<p align=center> ✦ ᵈⁱᵛ ᶜʳᵉᵈ ! !: @/ᵏᵒᵈᵃˢʷʳˡᵈ / / @/ᵃⁿⁱᵗᵃˡᵉⁿⁱᵃ / / @/ᵛʸˢˡᵉⁱˣ  ~ ⁽ ᵃˡˡ ᵒⁿ ᵗᵘᵐᵇˡʳ ! ! ⁾ ~
+<p align=center> ✦ ᵈⁱᵛ ᶜʳᵉᵈ ! !: @/stomachbooks  ~ ⁽ ᵒⁿ ᵗᵘᵐᵇˡʳ ! ! ⁾ ~
 
 ![image](https://64.media.tumblr.com/931ae319050d2c211490dfb854064413/32d91eb9f9453e40-7d/s1280x1920/75d4b4bc75d9ed005be1a91614dfdd1f3dfd8d89.gifv)
 <!--
