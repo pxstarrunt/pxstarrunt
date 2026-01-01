@@ -19,7 +19,7 @@
 <p align=center> ✦ ᵏⁿᵒʷⁿ ᵇʸ ᵐᵃⁿʸ ⁿᵃᵐᵉˢ ᵒⁿ ᵐᵃⁿʸ ᵈⁱᶠᶠᵉʳᵉⁿᵗ ˢᵒᶜⁱᵃˡˢ..
 
 ![image](https://64.media.tumblr.com/9d6b6cb355065dc9c6ad4c4c58cb6457/32d91eb9f9453e40-54/s1280x1920/b0e20f3a675e19c5d7eec9f7ab11a0dadd222f49.gifv)
-![image](https://64.media.tumblr.com/1e0157c01fed92a34467a6afc89974ea/53333f61af485e11-d7/s500x750/9799fd7bb8f838926b84e6919d8b26e437e24b80.gifv)
+
 
 ![image](https://github.com/user-attachments/assets/a12d3e66-fa1d-4c35-9119-4edbc381e8ba)
 
@@ -33,7 +33,7 @@
 
 <p align=center> ⁻ purposfully make others uncomfortable
 
-![image](https://github.com/user-attachments/assets/9874b540-d935-438e-b0f2-78ff5326ad93)
+
 
 ![image](https://github.com/user-attachments/assets/cee5e7f0-0e4f-40ee-b1ea-b994c50681de)
 
